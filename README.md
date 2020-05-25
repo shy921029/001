@@ -1,1 +1,1 @@
-# learning, day day up
+# learning
